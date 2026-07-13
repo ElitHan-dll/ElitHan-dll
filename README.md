@@ -5,8 +5,8 @@
 </p>
 
 ## My Ecosystem
-**Elit-Development**
+**🛠️ | Elit-Development**
 
-**Elit Games Studios**
+**🎮 | Elit Games Studios**
 
-**Elit-Records**
+**🎵 | Elit-Records**
