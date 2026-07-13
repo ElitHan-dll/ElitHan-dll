@@ -13,4 +13,6 @@
 
 ## Social Links
 
-**[Youtube](https://www.youtube.com/channel/UCScW1vTi2-3DOHO9B5gvrTQ)**:
+**[Youtube](https://www.youtube.com/channel/UCScW1vTi2-3DOHO9B5gvrTQ)**
+
+**[Steam](https://steamcommunity.com/id/ElitHan/)**
