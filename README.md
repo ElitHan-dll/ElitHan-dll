@@ -10,3 +10,7 @@
 **🎮 | Elit Games Studios**
 
 **🎵 | Elit-Records**
+
+## Social Links
+
+**[Youtube](https://www.youtube.com/channel/UCScW1vTi2-3DOHO9B5gvrTQ)**:
