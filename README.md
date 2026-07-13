@@ -5,7 +5,6 @@
 </p>
 
 ## My Ecosystem
-
-*Elit-Development*
-*Elit Games Studios*
-*Elit-Records*
+**Elit-Development**
+**Elit Games Studios**
+**Elit-Records**
